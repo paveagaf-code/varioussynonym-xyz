@@ -1,0 +1,1 @@
+# varioussynonym-xyz
